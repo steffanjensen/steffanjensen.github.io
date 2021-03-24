@@ -1,1 +1,1 @@
-# steffanjensen.github.io
+All artwork is copyrighted by Steffan Jensen
